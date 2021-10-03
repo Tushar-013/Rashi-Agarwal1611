@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Rashi Agarwal
+- 😄 Pronouns: ... She/Her
 - 👀 I’m interested in ... Coding, Dancing and learning new stuff
 - 🌱 I’m currently learning ... Big Data
 - 📫 How to reach me ... www.linkedin.com/in/rashi-agarwal-2b1858192
